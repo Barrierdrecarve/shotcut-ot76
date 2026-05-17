@@ -1,4 +1,4 @@
-# 
+# Advanced Adobe Premiere Pro for PC plugins is the best Adobe Premiere Pro for PC plugins with green-screen and EQ. Safe, reliable, and optimized for maximum performance.
 
 
 
